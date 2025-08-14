@@ -1,0 +1,1 @@
+# Patenty-dla-SpeceX
