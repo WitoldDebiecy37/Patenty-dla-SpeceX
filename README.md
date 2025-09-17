@@ -8,3 +8,4 @@ W latajaoncy magazyn winde jonolot zabrać załadunek i serwer z rzeczemi do ży
 W serwerownie w widznie latającej hali na jonolot musi się zmieścić w serwerowni produkt ale to śmierdzące i ale to kwaśne jogurty i papierosy ze sklepów. 
 Elite Dongurs latali bez papierosy procesor bez serwera 112 i żyli mielie tylko wode do picia i kolonizowali kosmos. 
 Do patentów daje AI do procesora wyprukowanego przez firme i procesor jest do oprużnienia. 
+Za tą usługe nalerzy się vois z panią piękną modelką tłumacz i jej rzeczami i futrem i kocami i jedzeniem vois prosze wysłać na mój adres kurierem i można wysłać też pieniadze z panią łumacz w vois translator. 
